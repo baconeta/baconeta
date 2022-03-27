@@ -6,4 +6,4 @@
 - 📫 You can email me on joshuapearsonnz@gmail.com if you want to get in touch.
 - 📚 I love reading, hiking, singing, and music. Oh, and designing and playing video games, of course!
 - 😄 Pronouns: he/him.
-- ⚡ Fun facts: I've lived in four countries, visited over 20 and I have a travel and culture podcast with my amazing finnish better-half, Veera. I'm prepared to move to almost anywhere for the right opportunity - I work to experience and learn.
+- ⚡ Fun facts: I've lived in four countries, visited over 20 and I have a travel and culture podcast with my amazing better-half, Veera. I'm prepared to move to almost anywhere for the right opportunity - I work to experience and learn.
